@@ -7,8 +7,6 @@
 
 - 🌱 I’m currently learning **AI**
 
-- 👨‍💻 All of my projects are available at [https://filcronet.it](https://filcronet.it)
-
 - 📫 How to reach me **crotti.business@gmail.com**
 
 - 📄 Know about my experiences [https://europa.eu/europass/eportfolio/screen/share/9a433fd4-b9f2-4970-919f-048333a018f8?lang=en](https://europa.eu/europass/eportfolio/screen/share/9a433fd4-b9f2-4970-919f-048333a018f8?lang=en)
